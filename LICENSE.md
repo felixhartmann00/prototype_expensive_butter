@@ -1,0 +1,1 @@
+You are not allowed to use this code. Especially for "AI" stuff. I'm looking at you. Bro ? Brooooo.
